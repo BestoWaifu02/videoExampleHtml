@@ -26,6 +26,9 @@
 
 ![](https://i.imgur.com/S6kGW6T.png)
 
+> The video is runnig in the background
+
+
 ### <s>Random Waifu</s>
 
 ![](https://i.imgur.com/bAYoPhn.jpeg)
